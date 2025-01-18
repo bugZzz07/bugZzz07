@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding & traveling 
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate on web development 
-- 📫 How to reach me +918219345232
+- 📫 How to reach me +9182xxxxxxxx
   
 
 <!---
